@@ -1,0 +1,1 @@
+![dadsdreamguitar](https://images.ctfassets.net/m8onsx4mm13s/0Op2Mq7tj2nswevgjOxLrV/46eb509299f1d62961ccb20c31739cf0/__static.gibson.com_product-images_USA_USAVVP294_Ebony_DSVS00EBCH1_front.jpg?w=1200&h=1200)
